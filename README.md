@@ -1,6 +1,3 @@
-HEfLffL0Y
-ffffffff
-ff
-
-f
-f WORLD!!!
+Горохов Иван Александрович 
+2331
+ИМО
