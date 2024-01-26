@@ -1,3 +1,3 @@
-Горохов Иван Александрович 
+GOROKHOV IVAN ALEKANDROVICH 
 2331
-ИМО
+IMO 
